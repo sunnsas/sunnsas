@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sunnsas
-- 👀 I’m interested in analyst (in system )
+- 👀 I’m interested in (analyst in system )
 - 🌱 I’m currently learning (phyton)
 - 💞️ I’m looking to collaborate on (?)
 - 📫 How to reach me (sunsaspraddo@gmail.com)
